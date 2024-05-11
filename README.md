@@ -15,4 +15,8 @@ Tìm kiếm việc làm tại Cần Thơ không chỉ đòi hỏi sự kiên nh�
 
 
 ▶️ ▶️ ▶️ Bài viết chi tiết: https://job3s.vn/tim-viec-lam-tai-can-tho-l48
+
 #vieclamcantho, #timvieclam, #job3s, #vieclam24h
+
+https://www.linkedin.com/pulse/vi%25E1%25BB%2587c-l%25C3%25A0m-c%25E1%25BA%25A7n-th%25C6%25A1-c%25C3%25A1nh-c%25E1%25BB%25ADa-m%25E1%25BB%259F-r%25E1%25BB%2599ng-c%25C6%25A1-h%25E1%25BB%2599i-cho-ng%25C6%25B0%25E1%25BB%259Di-lao-jobbas-hxnce/?published=t
+https://www.openstreetmap.org/user/vieclamcanthojob3s
